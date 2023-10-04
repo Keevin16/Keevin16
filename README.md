@@ -1,4 +1,4 @@
-** Hi there I'm Kevin **   
+**Hi there I'm Kevin**   
     👾 I'm studyng computer sciente at [Polimi](https://www.polimi.it/) 👾  
     
     - 🌿 I love code and development, I’ll load a lot of stuff  
