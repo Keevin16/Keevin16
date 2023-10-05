@@ -3,4 +3,4 @@
     
     - 🌿 I love code and development, I’ll load a lot of stuff  
     
-    -🚀 I’m always looking for new things to learn, from infinity and beyond!
+    -🚀 I’m always looking for new things to learn, To infinity and beyond!
